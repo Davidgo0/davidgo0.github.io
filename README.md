@@ -1,1 +1,1 @@
-davidgo0.github.io
+google.com, pub-2757088601789163, DIRECT, f08c47fec0942fa0
